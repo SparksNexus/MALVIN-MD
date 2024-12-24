@@ -1,4 +1,4 @@
-<a><img src='https://i.imgur.com/LyHic3i.gif'/>
+I'm<a><img src='https://i.imgur.com/LyHic3i.gif'/>
 
 </p> <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Rubik+Dirt&size=65&pause=1000&color=F720C3F&background=FF20A500&center=true&vCenter=true&width=1000&height=150&lines=MALVIN+MD+ V2;MADE+BY+MALVIN+KING" alt="Typing SVG" /></a>
